@@ -1,1 +1,1 @@
-Exemplo 1 ("Alteração"
+Exemplo 1 ("Alteração")
